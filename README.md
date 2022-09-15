@@ -1,0 +1,1 @@
+# emerging-methods-for-early-dedection-of-forest-fires
